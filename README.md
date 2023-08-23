@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **sp.nothing35@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1n7O19hkMrc_ECTc3eiXRcCLGDeSSGBjv/view?usp=sharing](https://drive.google.com/file/d/1n7O19hkMrc_ECTc3eiXRcCLGDeSSGBjv/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1_NOqugf_2_-VinbzqkEjwq5e_nyrCgSV/view?usp=sharing](https://drive.google.com/file/d/1_NOqugf_2_-VinbzqkEjwq5e_nyrCgSV/view?usp=sharing)
 
 - ⚡ Fun fact **I am keen about learning new technologies and applying them to projects in real life**
 
